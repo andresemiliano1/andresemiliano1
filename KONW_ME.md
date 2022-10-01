@@ -1,0 +1,13 @@
+- 👋 Hi, I’m Andres Emiliano
+- I was born in Venezuela in 1995... I know it's not very relevant
+- but I have to say that I was born in a very armored and impressive country.
+- 👀 I am: Bachelor of Culinary Arts (Vzla); 
+- and current student of: Web Application Development; in Spain.
+- 🌱 I love to learn, study, create with my hands well with
+-  the help of a knife or a keyboard.
+-
+- 📫 you can contact me by different means... come on, do it!
+
+- email: andresemiliano1@gmail.com
+- instagram: @im.andresramos
+- contact number: (+34) 667229488 (I have whatsapp)
